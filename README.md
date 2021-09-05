@@ -55,4 +55,13 @@ CLICK TO [DOWNLOAD WPS PC](https://github.com/Kamrulofficial/wps/raw/main/WPS%20
 ![image](https://user-images.githubusercontent.com/44496738/132130558-64caf304-3dce-4b7c-b7ed-607f4d6b0026.png)
 
 
+ # If you face the? This App has been Blocked for your Protection" Error 
+![image](https://user-images.githubusercontent.com/44496738/132133495-8b4bc771-8ea0-45ee-8036-9a8b09aa3142.png)
+![image](https://user-images.githubusercontent.com/44496738/132133502-24a7ada3-840d-4e1e-ba1a-09b2204b2187.png)
+
+ [WATCH THIS VIDEO](https://www.youtube.com/watch?v=InAAlclC6oE) AND FIX IT.!
+ 
+
 # THANKS FOR VISITING ENJOY THIS WPS WINDOWS METHOD
+
+* Copyright Unknown Source,Software Fully Virus Free
