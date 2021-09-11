@@ -59,7 +59,7 @@ CLICK TO [DOWNLOAD WPS PC](https://github.com/Kamrulofficial/wps/raw/main/WPS%20
 ![image](https://user-images.githubusercontent.com/44496738/132133495-8b4bc771-8ea0-45ee-8036-9a8b09aa3142.png)
 ![image](https://user-images.githubusercontent.com/44496738/132133502-24a7ada3-840d-4e1e-ba1a-09b2204b2187.png)
 
- [WATCH THIS VIDEO](https://www.youtube.com/watch?v=InAAlclC6oE) AND FIX IT.!
+ [WATCH THIS VIDEO](https://youtu.be/Gjf0PxhGU0U) AND FIX IT.!
  
 
 # THANKS FOR VISITING ENJOY THIS WPS WINDOWS METHOD
